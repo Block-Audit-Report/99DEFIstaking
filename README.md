@@ -1,3 +1,3 @@
 # 99DEFIstaking
 
-![Certificate_99Defi_Staking](https://user-images.githubusercontent.com/81981737/147586713-2b80b198-5139-4112-8862-c599f781a0fc.jpg)
+![99defistaking](https://user-images.githubusercontent.com/121312707/229453172-16875851-542b-4989-ba0b-fc2bbcb12a14.png)
